@@ -1,2 +1,2 @@
-# kozhanov1995.github.io
+# kassymbekoff.github.io
 Github page
